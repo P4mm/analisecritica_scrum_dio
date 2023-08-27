@@ -1,0 +1,1 @@
+# analisecritica_scrum_dio
